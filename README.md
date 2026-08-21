@@ -27,7 +27,7 @@ $\textcolor{#fff}{\textsf{doubles int w/ caution,, srry!! :(}}$
 [⋮　ata !　⌗](https://kikii.atabook.org/)　|　[⌗　prns !　⋮](https://en.pronouns.page/@.kuriiz)<br/>
 　<br/>
 
-### $\large\textcolor{#ef9c31}{\textsf{" hold me, kiss me - whisper sweetly ! >⩊<}}$<br/>
+### $\large\textcolor{#ef9c31}{\textsf{" hold me, kiss me - whisper sweetly ! >⩊< "}}$<br/>
 　<br/>
 
 
