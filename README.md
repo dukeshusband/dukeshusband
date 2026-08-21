@@ -16,7 +16,8 @@
 
 
 <div align="center">
+  
+$\large\textcolor{#fff}{\textsf{hai!!, I go by kiki or kur!}}$ $\textcolor{#ef9c31}{\textsf{(˶ᵔ ᵕ ᵔ˶) ‹𝟹}}$
 
-
-
-
+$\small\textcolor{#f1d539}{\textsf{they/it/he please,,}}$<br/>
+　<br/>
