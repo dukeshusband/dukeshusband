@@ -34,7 +34,9 @@ $\textcolor{#fff}{\textsf{doubles int w/ caution,, srry!! :(}}$
 <img width="1034" height="291" alt="image" src="https://github.com/user-attachments/assets/915e4519-d325-4c8a-b03a-f94a2224a608" /><br/>
 　<br/>
 
-tysm!! ⸜(｡˃ ᵕ ˂ )⸝♡ [@pt-loveforfictional](https://github.com/pt-loveforfictional) & [pt-walk-of-fame](https://github.com/pt-walk-of-fame)
+ilysm/p [@CherriTartz](https://github.com/CherriTartz) : [@pt-friendships](https://github.com/pt-friendships)
+
+ty!! ⸜(｡˃ ᵕ ˂ )⸝♡ [@pt-loveforfictional](https://github.com/pt-loveforfictional) & [pt-walk-of-fame](https://github.com/pt-walk-of-fame)
 
 <img width="290" height="38" alt="image" src="https://github.com/user-attachments/assets/51dc07bc-7c93-4338-a6a2-c19ffde20a16" />
 
