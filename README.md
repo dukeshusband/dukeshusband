@@ -16,7 +16,7 @@
 
 $\textcolor{#f1d539}{\textsf{BIG FAT duke thomas yume, ‹𝟹}}$
 
-$\textcolor{#fff}{\textsf{doubles int w/ caution,, srry!! :(}}$
+$\textcolor{#fff}{\textsf{doubles are ok to int!!! :)}}$
 
 
 
