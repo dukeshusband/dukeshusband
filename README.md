@@ -24,7 +24,7 @@ $\textcolor{#fff}{\textsf{doubles are ok to int!!! :)}}$
 　<br/>
 　<br/>
  
-[⋮　ata !　⌗](https://kikii.atabook.org/)　|　[⌗　prns !　⋮](https://en.pronouns.page/@.kuriiz)<br/>
+[⋮　ata !　⌗](https://kikii.atabook.org/)　|　[⋮　prns !　⌗](https://en.pronouns.page/@.kuriiz)　|　[⋮　guns !　⌗](https://guns.lol/kurziii) <br/>
 　<br/>
 
 ### $\large\textcolor{#ef9c31}{\textsf{" hold me, kiss me - whisper sweetly ! >⩊< "}}$<br/>
