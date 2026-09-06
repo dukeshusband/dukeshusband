@@ -10,13 +10,14 @@
 
 <div align="center">
   
-### $\large\textcolor{#fff}{\textsf{hai!!, I go by kiki or kur!}}$ $\textcolor{#ef9c31}{\textsf{(˶ᵔ ᵕ ᵔ˶)}}$<br/>
+### $\large\textcolor{#fff}{\textsf{hai!!, I go by kiki or kur!}}$ $\textcolor{#f1d539}{\textsf{(˶ᵔ ᵕ ᵔ˶)}}$
+$\textcolor{#fff}{\textsf{pls don't}}$  $\textcolor{#ef9c31}{\textsf{heavy}}$ $\textcolor{#fff}{\textsf{inspo off my sites n' ponies!! thxs}}$<br/>
 　<br/>
-
+　<br/>
 
 $\textcolor{#f1d539}{\textsf{BIG FAT duke thomas yume, ‹𝟹}}$
 
-$\textcolor{#fff}{\textsf{doubles are ok to int!!! :)}}$
+$\textcolor{#fff}{\textsf{doubles are ok to int!! :D  just don't be rude to me!}}$
 
 　<br/>
 
