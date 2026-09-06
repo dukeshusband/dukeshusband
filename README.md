@@ -11,7 +11,7 @@
 <div align="center">
   
 ### $\large\textcolor{#fff}{\textsf{hai!!, I go by kiki or kur!}}$ $\textcolor{#f1d539}{\textsf{(˶ᵔ ᵕ ᵔ˶)}}$
-$\textcolor{#fff}{\textsf{pls don't}}$  $\textcolor{#ef9c31}{\textsf{heavy}}$ $\textcolor{#fff}{\textsf{inspo off my sites n' ponies!! thxs}}$<br/>
+$\textcolor{#fff}{\textsf{pls don't}}$  $\textcolor{#ef9c31}{\textsf{heavy}}$ $\textcolor{#fff}{\textsf{inspo or copy off my sites n' ponies!! thxs}}$<br/>
 　<br/>
 　<br/>
 
