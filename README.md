@@ -37,7 +37,7 @@ $\textcolor{#fff}{\textsf{doubles are ok to int!! :D  just don't be rude to me!}
 
 ilysm/p!!!! [@CherriTartz](https://github.com/CherriTartz) : [@pt-friendships](https://github.com/pt-friendships)
 
-ty!! ⸜(｡˃ ᵕ ˂ )⸝♡ [@pt-loveforfictional](https://github.com/pt-loveforfictional)　[pt-walk-of-fame](https://github.com/pt-walk-of-fame)　[paw-town](https://github.com/paw-town)
+ty!! ⸜(｡˃ ᵕ ˂ )⸝♡　[@pt-loveforfictional](https://github.com/pt-loveforfictional)　[pt-walk-of-fame](https://github.com/pt-walk-of-fame)　[paw-town](https://github.com/paw-town)
 
 <img width="290" height="38" alt="image" src="https://github.com/user-attachments/assets/51dc07bc-7c93-4338-a6a2-c19ffde20a16" />
 
