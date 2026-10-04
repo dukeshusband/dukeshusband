@@ -3,7 +3,7 @@
 <img width="1290" height="310" alt="image" src="https://github.com/user-attachments/assets/999dd895-f7c8-42ab-966b-4eee35ada8af" />
 
 <div align="left">
-<img width="120" src="https://komarev.com/ghpvc/?username=dukeshusband&label=sunshines+☀︎&color=ef9b31"><br/>
+<img width="120" src="https://komarev.com/ghpvc/?username=dukeshusband&label=sunshines+☀︎&color=ef9b31"> <br/>
 　<br/>
  
 
