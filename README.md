@@ -17,7 +17,7 @@ $\large\textcolor{#fff}{\textsf{pls don't}}$  $\large\textcolor{#ef9c31}{\textsf
 
 $\textcolor{#f1d539}{\textsf{BIG FAT duke thomas yume, ‹𝟹}}$
 
-$\textcolor{#fff}{\textsf{doubles are ok to int!! :D  just don't be rude to me!}}$
+$\textcolor{#fff}{\textsf{doubles are ok to int!! :D  just please don't invalidate me!}}$
 
 　<br/>
 
