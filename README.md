@@ -26,7 +26,7 @@ $\textcolor{#fff}{\textsf{doubles are ok to int!! :D  just please don't invalida
 　<br/>
  
 [⋮　ata !　⌗](https://kikii.atabook.org/)　|　[⋮　prns !　⌗](https://en.pronouns.page/@.kuriiz)　|　[⋮　guns !　⌗](https://guns.lol/kurziii)　|　[⋮　straw !　⌗](https://dukethomaslvr.straw.page/) <br/>
-[⋮　matching straw !　⌗](https://halburgerr.straw.page/) 　<br/>
+[⋮　matching straw !　⌗](https://halburgerr.straw.page/)　|　[⋮　artfight !　⌗](https://artfight.net/~kurzii) <br/>
 　<br/>
 
 ### $\large\textcolor{#ef9c31}{\textsf{" hold me, kiss me - whisper sweetly ! >⩊< "}}$<br/>
